@@ -1,1 +1,0 @@
-# Rinc-n-del-Genomav3.github.io
